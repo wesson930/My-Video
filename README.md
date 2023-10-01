@@ -13,4 +13,6 @@
     <DT><A ADD_DATE="1686248976" HREF="https://p3.hui005.co/?aff_code=dH4nv#/home">ReactPWA</A>
     <DT><A ADD_DATE="1684789503" HREF="https://91porn.com/">91Porn</A>
     <DT><A ADD_DATE="1684789203" HREF="https://caoliu1024.com/">草榴</A>
+    <DT><A ADD_DATE="1684289503" HREF="https://www.xvideos.com/">X视频</A>
+    <DT><A ADD_DATE="1684729203" HREF="https://cn.pornhub.com/">Pornhub</A>     
 </DL><p>
