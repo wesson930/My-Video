@@ -6,7 +6,7 @@
     <DT><A ADD_DATE="1684789219" HREF="http://g.s671.cc/">鲍鱼Tv</A>
     <DT><A ADD_DATE="1684789219" HREF="http://m598.cc/">鲍鱼Tv</A>
     <DT><A ADD_DATE="1684789356" HREF="https://gdav.com/">G點網</A>
-    <DT><A ADD_DATE="1684789399" HREF="https://maomiav.com/">猫咪</A>
+    <DT><A ADD_DATE="1684789399" HREF="http://maomiav.ai/">猫咪</A>
     <DT><A ADD_DATE="1684789438" HREF="http://theporn.cc/">ThePorn</A>
     <DT><A ADD_DATE="1684789473" HREF="https://pp23.tv/">屁屁影院</A>
     <DT><A ADD_DATE="1684789502" HREF="https://pp66.tv/">屁屁影院</A>
