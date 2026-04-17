@@ -11,7 +11,7 @@
     <DT><A ADD_DATE="1684789438" HREF="http://theporn.cc/">ThePorn</A>
     <DT><A ADD_DATE="1684789473" HREF="https://pp23.tv/">屁屁影院</A>
     <DT><A ADD_DATE="1684789502" HREF="https://pp66.tv/">屁屁影院</A>
-    <DT><A ADD_DATE="1686248976" HREF="https://p3.hui005.co/?aff_code=dH4nv#/home">ReactPWA</A>
+    <DT><A ADD_DATE="1684789502" HREF="http://yysp.me/">屁屁影院</A>
     <DT><A ADD_DATE="1684789503" HREF="https://91porn.com/">91Porn</A>
     <DT><A ADD_DATE="1684789203" HREF="https://caoliu1024.com/">草榴</A>
     <DT><A ADD_DATE="1684289503" HREF="https://www.xvideos.com/">X视频</A>
